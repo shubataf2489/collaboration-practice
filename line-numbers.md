@@ -6,7 +6,7 @@
 #### 6
 #### 7 Shubata was here!
 #### 8
-#### 9
+#### 9 GitHub is awesome.
 #### 10
 #### 11
 #### 12
